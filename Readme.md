@@ -1,1 +1,1 @@
-The coode files are foe reference only. All the data references are to my Gogle drive
+The coode files are for reference only. All the data references are to my Gogle drive
